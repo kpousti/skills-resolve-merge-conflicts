@@ -1,3 +1,5 @@
 # References
 
-* octocat 1 😈
+- Aquaman 
+- Superman �
+- octocat 1 😈
